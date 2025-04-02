@@ -32,5 +32,5 @@ Me siento a gusto con el deporte y comer bien, pero tambien por el manga,  el an
 ### Que se de Programacion: 
 la verdad que mas que lo que se en clase y lo que aprendo de las materias no practique nada mas, usaba cmd para saber datos de pc y arreglar mi disco duro o usarlo para formatear de alguna forma el disco para jugar con la play 3, pero mas que eso no tengo mucha idea ni trabajo dependientemente como algunos de mis compañeros por eso me siento un tanto atrasado en comparacion de algunos, pero nada como aprender lo basico, de manera universitaria lo veo como algo buenisimo, desde mi punto de vista.
 
-
+Voy a elegir y terminar esta carrera completamente por que me encanta y me gusta mucho, si bien peleo y discuto bastante conmigo mismo con algunas materias, sigo para adelante porque realmente me gusta mucho.
 
